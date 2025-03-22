@@ -2,4 +2,7 @@
 
 I study in Netologi
 
-21.03.2025
+22.03.2025
+
+I continue study in Netologi..
+
